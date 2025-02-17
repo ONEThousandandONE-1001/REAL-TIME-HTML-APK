@@ -22,14 +22,7 @@ Check out the live version here: [ONE Thousand and ONE Terminal](https://onethou
 
 ---
 
-## 🚀 How to Use:
-1. **Clone the repository**:
-    ```bash
-    git clone https://github.com/your-username/your-repo-name.git
-    cd your-repo-name
-    ```
-2. **Open the file**:
-    Just open the `index.html` file in your favorite browser.
+## 🚀 DOWNLOAD FREE APK :- [DOWNLOAD](https://www.upload-apk.com/IMIfiIkGL45oV9T)
 
 ---
 
