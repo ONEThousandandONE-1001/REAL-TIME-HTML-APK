@@ -22,7 +22,7 @@ Check out the live version here: [ONE Thousand and ONE Terminal](https://onethou
 
 ---
 
-## 🚀 DOWNLOAD FREE APK :- [DOWNLOAD](https://www.upload-apk.com/IMIfiIkGL45oV9T)
+## 🚀 DOWNLOAD FREE APK :- [DOWNLOAD](base.apk)
 
 ---
 
